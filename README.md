@@ -1,2 +1,2 @@
-Adriel Henrique Foppa Lima \n
+Adriel Henrique Foppa Lima e
 Alan Mantelatto Mlatisuma
